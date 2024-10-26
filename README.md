@@ -1,0 +1,1 @@
+To jest readme ktore dodalem o 17:33
